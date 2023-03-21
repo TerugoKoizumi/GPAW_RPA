@@ -1,1 +1,1 @@
-koikoi
+ko
